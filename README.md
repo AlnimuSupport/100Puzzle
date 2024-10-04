@@ -19,3 +19,5 @@ Regular Updates: We’re committed to improving your gaming experience. Expect r
 
 Why Play 100Puzzle?
 100Puzzle is not just a game; it’s an opportunity to challenge yourself mentally while having fun! Whether you're looking to kill some time or seeking a serious brain workout, this game is perfect for you. With its vibrant graphics, captivating gameplay, and rewarding experience, 100Puzzle will keep you coming back for more!
+
+For further questions: alnimusupport@alnimu.com
